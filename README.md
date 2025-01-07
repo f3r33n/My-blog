@@ -7,3 +7,4 @@ Check out my blog [here](https://sphereoftech360.in/).
 3. Skills to acquire to survive 2025 [here](https://sphereoftech360.in/2024/12/the-ultimate-skill-set-you-must-acquire.html)
 4. The only Legit article you need to read for making money in 2025 [here](https://sphereoftech360.in/2024/12/the-only-legit-article-you-need-to-read.html)
 5. Tech-trends you don't want to miss! [here](https://sphereoftech360.in/2024/12/the-ultimate-skill-set-you-must-acquire.html)
+6. Top  6 Unbelievable AI tools to master 2025.[here]([here](https://sphereoftech360.in/2024/12/the-ultimate-skill-set-you-must-acquire.html))
