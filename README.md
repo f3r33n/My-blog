@@ -12,3 +12,4 @@ Check out my blog [here](https://sphereoftech360.in/).
 8. Mastering AI in 2025: The Ultimate Beginner’s Guide to Artificial Intelligence  [here](https://www.sphereoftech360.in/2025/01/mastering-ai-in-2025-ultimate-beginners.html)
 9. How to master neuromorphic computing in 2025: beginners guide  [here](https://www.sphereoftech360.in/2025/01/how-to-master-neuromorphic-computing-in.html)
 10. Master Blockchain in 2025: A Beginner’s Guide! [here](https://www.sphereoftech360.in/2025/01/how-to-master-blockchain-in-2025.html)
+11. Top 8 Psychological Tricks to Master Social Media Usage. [here](https://www.sphereoftech360.in/2025/01/top-8-psychological-tricks-to-master.html)
